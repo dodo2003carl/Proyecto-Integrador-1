@@ -151,9 +151,9 @@ Procesamiento escalable y reproducible con validación en cada etapa, diseñado 
 ## Conectemos
 
 - **📧 Correo:** doydurema67@gmail.com
-- **🔗 LinkedIn:** [Mi Perfil](https://linkedin.com)
+- **🔗 LinkedIn:** [Mi Perfil](https://www.linkedin.com/in/dody-dueñas-079164296/)
 - **💼 Desarrollador:** Dody Salim Dueñas Remache
 
 ---
 
-© 2024 Dody Dueñas. Todos los derechos reservados.
+© 2025 Dody Dueñas. Todos los derechos reservados.
